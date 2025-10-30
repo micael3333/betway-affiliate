@@ -1,2 +1,2 @@
-# betway-affiliate
+# primefluxo-gamble
 mxm
